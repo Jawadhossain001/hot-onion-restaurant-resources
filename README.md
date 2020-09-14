@@ -1,1 +1,1 @@
-# hot-onion-restaurent-resources
+# hot-onion-restaurant-resources
